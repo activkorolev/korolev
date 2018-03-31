@@ -5,3 +5,4 @@
 людей, которые так же как и вы хотят вести здоровый образ жизни. Вы проведете время с пользой и удовольствием!
 https://activf2017.blogspot.ru/
 <a href="https://activf2017.blogspot.ru/"><img alt="Актив студия фитнеса Королёв" src="https://goo.gl/gjB9GV" height="31" width="88" border="0" /></a>
+![Актив фитнес студия Королёв ](https://avatars1.githubusercontent.com/u/37883500?s=200&v=4)
